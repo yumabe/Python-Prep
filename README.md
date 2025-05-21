@@ -1,5 +1,8 @@
 ![HenryLogo](https://d31uz8lwfmyn8g.cloudfront.net/Assets/logo-henry-white-lg.png)
 
+Claudia Mabe </br >
+Cursera Data and Cybersecurity
+
 
 # **🧑‍💻 PREP COURSE | HENRY 👩‍💻**
 
